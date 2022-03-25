@@ -30,3 +30,5 @@ Alguns nomes nas miniaturas foram alterados e diferem dos nomes usados em sua fo
 - Old-School Essentials
 
 Ou qualquer outros sistema que você goste. Imprima, corte, dobre, cole as miniaturas e role os dados !!!
+
+![D D Plays](https://user-images.githubusercontent.com/91227083/160176617-f4336f6d-a237-4c2d-86dd-da568c20583d.jpg)
